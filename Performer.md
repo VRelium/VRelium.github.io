@@ -25,3 +25,6 @@ NotaGames
 TFMJonny
 grubbuddy
 demmy :)
+-ChronoWolf-
+PomPumaDragon
+Charlie Tinn
